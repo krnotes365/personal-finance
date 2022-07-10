@@ -43,8 +43,9 @@ Be realistic in life and don’t go by quotes including this one
 ### 11. Dividends matter
 A company that is growing and pays dividend matters. That is where most of the wealth is made coz the dividend ensure you never have to sell the stock to meet your expenses.
 
-### 12. Further dividend means the company is making cash flow. 
-Infy is a multi bagger. So is TCS. Both have 4-5x’ed in last 12yrs.
+Further dividend means the company is making cash flow. 
+
+### 12. Infy is a multi bagger. So is TCS. Both have 4-5x’ed in last 12yrs.
 
 Large caps can be multibaggers plus their dividends keeps increasing 
    
