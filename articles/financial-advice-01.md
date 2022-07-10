@@ -19,7 +19,7 @@ Don’t fall for a well laid trap. Smooth talkers are usually expensive at the e
 It is rare for a mid cap stock to become a large cap. And it is extremely rare for a small cap to turn into a large cap in one generation. You will not find a multibagger without willing to lose 100% on 9 out of 10 bets (this is the best of the odds). So take you chances knowing you will lose 100% of capital 
    
 ### 5. Leverage is your best friend. Leverage is your worst enemy
-Amount of debt doesn’t matter. Cash flow matters. If you can service debt with cash flow, debt and leverage can be your friend, if your cash flow is dicey, don’t even think of debt
+Amount of debt doesn’t matter. Cash flow matters. If you can service debt with cash flow, debt and leverage can be your friend.  If your cash flow is dicey, don’t even think of debt
    
 ### 6. Bonds are riskier than stocks.
 Long story short, bond do default and unlike stocks they are more illiquid 
