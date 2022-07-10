@@ -1,4 +1,4 @@
-# Financial Advice - 01
+# Financial Gyaan - Top Tips
 
 ### 1. Life insurance, health insurance, maxing out PPF, avoiding credit card debt delays, investing excess in a low cost index fund is 90% of personal finance management. 
 Plain vanilla term plan, proper health coverage on health insurance, being serious with PPF, SIP in index fund and auto payment to credit card. That’s it! 
