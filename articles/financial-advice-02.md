@@ -1,4 +1,4 @@
-# Financial Advice 02 
+# Financial Gyaan - Top Tips (2nd Edition)
 
 <!-- This is revised post to be created
 https://www.facebook.com/groups/asanideasforwealth/posts/8358643037539849/
