@@ -47,7 +47,7 @@ There is post on this group about how people save money. It is the most sorry co
 
 Focus to increase your income. Get a side hustle. Go for on-site. Get a job in GCC for few years. Switch jobs. Work to get that promotion. 
 
-Don’t worry about spending few thousands here and there. It doesn’t matter tbh. We are all here for a short time. Live in a good society. Eat well. Dress well. Groom your facial hair well. Go on vacations. 
+Don’t worry about spending few thousands here and there. It doesn’t matter to be honest. We are all here for a short time. Live in a good society. Eat well. Dress well. Groom your facial hair well. Go on vacations. 
 
 ### 8. You will have financial setbacks. Try to get them early in life 
 I once lost 77% of my portfolio cause was I was deep on leverage and I was playing the casino game on stocks. It went from plus 250% to negative 77% in matter of months (Jan 2008 to Sep 2008). Thankfully my portfolio was relatively small. I went into depression because I had lost my dad’s pay commission money and he wasn’t even aware of it. He had trusted me with his money and it was all gone along with my MBA fees. 
