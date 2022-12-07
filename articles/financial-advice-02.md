@@ -70,8 +70,8 @@ I picked Page Industries early cause I spoke to a shopkeeper on why he is keepin
 
 Speak to your shopkeepers on what people are buying. Look at the carts of other shoppers of what they are buying. If you do this often, you will be able to pick the product that is sticking with consumers. Then go in-depth of that product. Who is making the packaging. who is the supplier. Where the label is printed. Who is transporting it. If you do little bit of leg work, you will make crores. 
 
-### 11. Get to your 50 lac portfolio 
-10% return on 1lac is 10k. On 10lac it is 1lac. on 50lacs it is 5lac. Get your portfolio to cross a threshold to actually see major gains in real money terms. 
+### 11. Get to your 50 Lac portfolio 
+10% return on 1Lac is 10K. On 10Lac it is 1Lac. on 50Lacs it is 5Lac. Get your portfolio to cross a threshold to actually see major gains in real money terms. 
 
 You don’t spend money in percentages. You spend it in real ruppees and you can make real money only when you put enough money to work. 
 
@@ -105,7 +105,7 @@ Plus it is bad for environment
 ### 16. Politics 
 I know it is a no go area in this group. But let me touch it. 
 
-You might be all cool making 1cr a year with 5cr in index fund. But if you arent aware of how politics of the country is playing out, you are at risk. 
+You might be all cool making 1Cr a year with 5Cr in index fund. But if you arent aware of how politics of the country is playing out, you are at risk. 
 
 Govt have immense power. You must learn to see how that power will impact you. Always follow politics closely and vote wisely. 
 
