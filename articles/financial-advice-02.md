@@ -8,12 +8,12 @@ It has been few months since I posted on this group. so much has happened in the
 
 So here are few things I wanted to share: 
 
-1. Personal finance 
+### 1. Personal finance 
 First thing off the bat. Get a plain vanilla term plan. Get 9-12 month of emergency fund in an FD. Buy low cost index fund. Cover medical insurance. Max out PPF. 
 
 This is 90% of personal finance a normal person needs. More details below
 
-2. Emergency fund is meant for emergency and not for returns
+### 2. Emergency fund is meant for emergency and not for returns
 Don’t buy debt fund with your emergency fund. Simple. Tradable Debt instruments are risky. If anyone has told you otherwise, you have been lied. I don’t want to get into the list of risks, but there are more than 10 of them and each risk has potential to screw you badly. From liquidity risk to interest rate risk to credit risk to plain fraud. 
 FD isn’t tax friendly but trust me 9-12 month of emergency fund won’t give enough returns from an FD to matter tax wise. 
 3. Marry right 
