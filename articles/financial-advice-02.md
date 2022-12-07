@@ -15,14 +15,20 @@ This is 90% of personal finance a normal person needs. More details below
 
 ### 2. Emergency fund is meant for emergency and not for returns
 Don’t buy debt fund with your emergency fund. Simple. Tradable Debt instruments are risky. If anyone has told you otherwise, you have been lied. I don’t want to get into the list of risks, but there are more than 10 of them and each risk has potential to screw you badly. From liquidity risk to interest rate risk to credit risk to plain fraud. 
+
 FD isn’t tax friendly but trust me 9-12 month of emergency fund won’t give enough returns from an FD to matter tax wise. 
-3. Marry right 
+
+### 3. Marry right 
 I can’t stress this enough. Marriage is the single most important thing you will do in your life. Don’t fall into a trap. Everyone ages and they aren’t the best looking at 35/40/45/50/55/60! 
-4. Understand cash flow
+
+### 4. Understand Cash flow
 A lot of people are stuck by net worth and income. While it is great to have a high net worth and great salary, always always calculate your cash flow. 
+
 There is no point owning 5 houses that you can not sell or get rental income while being valued at 10crs. 
+
 There is no point having a great salary when you have debt at 30%
-5. Credit card is a miracle and a curse 
+
+### 5. Credit card is a miracle and a curse 
 Use credit cards when you don’t need a credit card. Credit card gives 45 days of free unsecured lending. There is no product in the world like a credit card. 
 It charges 36% the day you miss a payment. There are very few regulated products that charges this rate. 
 Use the credit card to gets cash back and manage cash flows. Never ever miss a payment. 
